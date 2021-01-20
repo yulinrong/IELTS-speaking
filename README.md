@@ -166,3 +166,48 @@ When was the last time you visited a museum?
 ##### Home country 祖国
 Which part of your country do you want to live in? What makes you feel proud of your country?
 Do you know the history of your country well? Will you stay in China in the future?
+
+## 2021年1-4⽉雅思⼝语Part2话题卡
+
+### ⼈物类 
+Describe a part of a city or town you enjoy spending time in 喜欢的城区
+Describe an event you experienced in which you did not like the music played 不喜欢的⾳乐
+Describe a time when you saw children behaved badly in public 熊孩⼦
+Describe an occasion when you forgot something important 忘记重要的事情
+Describe the time when you first talked in a foreign language 第⼀次⽤外语
+Describe a time when you worked in a group 团队合作
+Describe a time when you changed your opinion 改变看法
+Describe a time you needed to use your imagination 发挥想象⼒
+Describe a time when you told your friend an important truth 告诉朋友实情
+Describe a time you made a promise to someone 许下的承诺
+Describe a time when you got close to wild animals 野⽣动物
+Describe a short trip you often take but do not like 不喜欢的短途旅⾏
+Describe a time when you gave advice to others 给别⼈建议
+Describe a time when you ate something for the first time 第⼀次吃的⻝物
+Describe a time when you felt bored ⽆聊的经历
+Describe a time when you had to wait in line (queue up) for a long time 排很⻓时间的队
+Describe a time when your computer broke down 电脑罢⼯
+Describe an occasion when you lost your way 迷路的经历
+Describe a time when you encouraged someone to do something that he/she didn’t want to do ⿎励别⼈做不愿做的事
+### 事物类
+Describe a prize that you received 获过的奖
+Describe a photograph of you that you like ⼀张照⽚
+Describe a tradition in your country 国家传统
+Describe an ambition that you have had for a long time ⻓久的追求
+Describe an area of science (physics, biology, psychology, etc.) that interests you 感 兴趣的科学领域
+Describe an expensive activity that you enjoy doing occasionally 贵贵的活动/昂贵的活动
+Describe a conversation topic that you were not interested in ⽆聊的话题
+Describe a line (or a few words) that you remember from a poem or song 诗歌或歌词
+Describe a good decision you made recently 好决定
+Describe a film that made you laugh 搞笑电影
+Describe a short term job you want to have in a foreign country 国外短期⼯作
+Describe a book you read that you found useful 有⽤的书
+Describe a time when you received good news 好消息
+Describe a skill that you think you can teach other people 可以传授别⼈的技能
+Describe a live sport match that you have watched 现场/直播体育⽐赛
+Describe a perfect job you would like to have in the future 完美的⼯作
+Describe something you bought that you were happy with 很开⼼买到的东西
+Describe something important that has been kept in your family for a long time 对家庭重要的东西
+Describe a toy you liked in your childhood 童年喜欢的玩具
+Describe an interesting conversation 有趣的谈话
+Describe a kind of weather you like 喜欢的天⽓
